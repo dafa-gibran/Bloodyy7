@@ -1,1 +1,1 @@
-# Bloodyy7
+INTI NYA GINI GUA GANTENG TQ:v
